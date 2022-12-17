@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **shubhamughade21@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1rK1BketMlFdubE-DgTcqcw2W0xKVQGDT/view)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1Hswzm5qk2iuz5DkhR0MrKTYLl8cRqONQ/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
